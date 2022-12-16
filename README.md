@@ -1,0 +1,1 @@
+# informatika-sait-for-school
